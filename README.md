@@ -1,2 +1,2 @@
-# kada-buat-boru-sinaga
+# kado-buat-boru-sinaga
 kado tercinta
